@@ -1,0 +1,6 @@
+- 👋 Hello, I am @walmarcel
+- 👀 I'm interested in AP
+- 🌱 I am currently learning to write code.
+- 💞️ I am looking to collaborate with other Henry students ...
+- 📫 You can contact me at walmarcel@gmail.com
+- 
